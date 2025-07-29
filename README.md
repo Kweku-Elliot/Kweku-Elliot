@@ -44,8 +44,8 @@ I specialize in building secure, scalable, and human-centered solutions across *
 ## 🔗 Connect With Me
 
 - 🌐 ORCID: [0009-0000-1855-9740](https://orcid.org/0009-0000-1855-9740)  
-- 🐦 Twitter/X: [@EllioElikplim](https://twitter.com/EllioElikplim)  
-- 💬 Telegram: [@ElliotCEO](https://t.me/ElliotCEO)
+- 🐦 Twitter/X: [@EllioElikplim](https://twitter.com/EllioAkpalu)  
+- 💬 Telegram: [@ElliotCEO](https://t.me/ElliotAkpalu)
 
 ---
 
